@@ -1,0 +1,1 @@
+kids should not be exposed to bad or negative content. but this is still for mature kid, because I do not want any negativecontent on my website. this is also for mature adults that respect that kids are on this page and should be treated kindly!
